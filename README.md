@@ -1,1 +1,3 @@
 # Terafac_Assessment
+
+ALL DETAILS ARE INSIDE THE PDF FILE.
